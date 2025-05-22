@@ -2,7 +2,6 @@
 - A mere developer who likes bizarre things
 - Currently learning about AI (non artistically), and Games
 - Looking for work out in personal projects
-- Looking for my projects? Follow @skull_soap on Twitter and instagram!
 - Pronouns: It/That
 - Fun fact: I have soap running through my blood
 
